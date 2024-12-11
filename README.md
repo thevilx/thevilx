@@ -40,8 +40,8 @@ I'm driven by:
 
 ### 📫 **Let’s Connect!**
 Feel free to reach out or collaborate on exciting projects:
-- 📧 Email: [your-email@example.com](mailto:your-email@example.com)
-- 🌐 [LinkedIn Profile](https://www.linkedin.com/in/your-profile)
+- 📧 Email: [amin.mir1380@gmail.com](mailto:amin.mir1380@gmail.com)
+- 🌐 [LinkedIn Profile](https://ir.linkedin.com/in/mohamad-amin-mirzaei)
 
 ---
 
